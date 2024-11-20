@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing (I am making funny cowboy game)
 - 📫 How to reach me: mrdiver55@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I've won two writing competitions
+- ⚡ Fun fact: I've won two national writing competitions
 
 <!---
 Igglanova/Igglanova is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
